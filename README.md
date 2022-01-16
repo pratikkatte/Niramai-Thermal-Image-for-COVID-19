@@ -1,0 +1,1 @@
+# Niramai-Thermal-Image-for-COVID-19
